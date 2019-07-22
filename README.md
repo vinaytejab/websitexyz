@@ -1,2 +1,2 @@
 # websitexyz
-### vinayteja.me
+### my website @ www.vinayteja.me
